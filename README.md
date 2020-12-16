@@ -1,0 +1,2 @@
+# DanijelPlese.github.io
+Applications
